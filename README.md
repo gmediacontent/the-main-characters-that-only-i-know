@@ -1,1 +1,4 @@
-# the-main-characters-that-only-i-know
+# The Main Characters That Only I Know
+"Si j'avais une autre chance..."
+10 ans après le début de l'apocalypse sur Terre, alors qu'il était confronté à une mort imminente, Yoohyun fut empli de regrets. C'est alors qu'une lumière brillante s'abattit sur lui. Lorsqu'il ouvrit les yeux, il fut accueilli par une scène inconnue... Non seulement il s'était réincarné en une race non-humaine appelée "Narrateur", mais il avait également remonté le temps de 10 ans !
+"Maintenant que je suis là, je vais faire en sorte de vivre ma meilleure vie cette fois-ci ! » Contrairement à sa vie précédente, où il ne pensait qu'à survivre, il est maintenant déterminé à mener une vie réussie. Dans cette nouvelle vie qu'il a gagnée, Yoohyun sera-t-il vraiment capable de devenir le protagoniste ?
